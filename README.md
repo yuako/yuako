@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yuako
 - 👀 I’m interested in money and woman
-- 🌱 I’m currently learning <<The rich woman contact book>>
+- 🌱 I’m currently learning "The rich woman contact book"
 - 💞️ I’m looking to collaborate on website,app
 - 📫 How to reach me, please call my phone
 
